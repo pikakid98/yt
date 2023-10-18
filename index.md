@@ -16,5 +16,5 @@
 [![no](/assets/img/no.png)](https://www.youtube.com/@nostalgiaoverdrive7785)
 
 ## Deadder than dead
-https://www.youtube.com/user/KeybladeMasterSora98
-https://www.youtube.com/user/LinkAndZeldaLegend98
+[https://www.youtube.com/user/KeybladeMasterSora98](https://www.youtube.com/user/KeybladeMasterSora98)
+[https://www.youtube.com/user/LinkAndZeldaLegend98](https://www.youtube.com/user/LinkAndZeldaLegend98)

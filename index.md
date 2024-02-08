@@ -1,6 +1,6 @@
 # All of my YouTube channels (Yes. I'm not proud of it)
 
-## Active (But not actively uploading like I used to)
+## Active
 
 None
 

@@ -10,7 +10,7 @@
 
 ## Dead
 
-[![ps](/assets/img/@pikakid98studios.png)](https://youtube.com/@pikakid98studios)
+[![pg](/assets/img/@pikakid98games.png)](https://youtube.com/@pikakid98games)
 [![bfts](/assets/img/bfts.png)](https://youtube.com/@battlefortheserver586)
 [![bts](/assets/img/bts.png)](https://youtube.com/@behindtheserver5654)
 [![no](/assets/img/no.png)](https://www.youtube.com/@nostalgiaoverdrive7785)
